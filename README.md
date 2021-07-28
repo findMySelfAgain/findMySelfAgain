@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @findMySelfAgain 
 - 👀 I’m interested in ... Learning 
 - 🌱 I’m currently learning ... A few things 
-- 💞️ I’m looking to collaborate on ... My life 
+- 💞️ I’m looking to collaborate on ... life   
 - 📫 How to reach me ... louiseskye52@gmail.com
 
 <!---
